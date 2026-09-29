@@ -1,1 +1,0 @@
-# lamalam18.github.io
